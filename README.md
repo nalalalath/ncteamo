@@ -1,0 +1,2 @@
+# ncteamo
+likah sticaaaah
